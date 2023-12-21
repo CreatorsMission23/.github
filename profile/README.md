@@ -10,4 +10,4 @@ sloth is the one that gets Him irate.
 
 so please visit us here on github, our primary place for the duration of the Creator's mission number 23 at https://github.com/sevenfalling
 
-(if you're wondering--prince's 7 lyrics gave us the idea for the name... "all 7 and we'll watch them fall, they stand in the way of (the Creator's) love and we will smoke them all."
+if you're wondering--prince's 7 lyrics gave us the idea for the name... "all 7 and we'll watch them fall, they stand in the way of (the Creator's) love and we will smoke them all."
